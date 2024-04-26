@@ -1,1 +1,1 @@
-### 4th grader, Convergence Content Department, Ewha Womans University
+Department of Content Convergence, Ewha Womans University
